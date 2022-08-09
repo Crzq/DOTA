@@ -4,7 +4,7 @@
 > 
 > 要去打 TI 的总决赛 and I had to play the TI final 
 > 
-> 那我会打出我一生最好的 Dota I would play the best Dota of my life 
+> 那我会打出我一生最好的 I would play the best Dota of my life 
 > 
 > 对我而言这是最重要的事 and that's all that would matter to me.  
 > 
