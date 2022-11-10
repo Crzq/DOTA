@@ -1,4 +1,8 @@
-> 我一直相信 I strongly believe that  
+*我本可以像萌新一样，问 F 是哪个技能，可是别人称呼我为“大神”，我只能假装明白。*
+
+
+
+>  我一直相信 I strongly believe that  
 > 
 > 如果我有天早上醒来 if I woke up in the morning  
 > 

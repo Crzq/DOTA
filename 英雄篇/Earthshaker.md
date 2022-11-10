@@ -1,3 +1,6 @@
+# Earthshaker
+
+
 e无视幻刺闪避？
 
 一刀牛，先E，在跳F
