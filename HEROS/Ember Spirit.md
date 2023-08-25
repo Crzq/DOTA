@@ -21,3 +21,7 @@
 T貌似不能躲VS t？今天我VS T完后，火猫T完后我的T还是弹在火猫身上
 
 大招躲萨尔瞥视
+
+火猫在飞的过程中能捡东西？https://www.youtube.com/watch?v=s7S_Q_YEvAk 4:24
+
+https://www.youtube.com/watch?v=s7S_Q_YEvAk 13:58 火猫利用无影拳抢符（可惜没成功。军团这种做法就是防范）
