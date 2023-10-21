@@ -23,3 +23,23 @@ DOTA2 推推可以解除小鱼人束缚，DOTA1中不行。
 DOTA2 跳的时候可以TP
 
 骷髅王出A杖死亡，只要死的时候在小鱼人附近，就会加敏捷，与A杖死亡后在不在附近无关。
+
+# SLARK
+
+#### DARK PACT
+
+
+
+#### POUNCE
+
+
+
+#### ESSENCE SHIFT
+
+幻象不继承被动。
+
+#### SHADOW DANCE
+
+
+
+#### DEPTH SHROUD
