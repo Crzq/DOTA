@@ -38,6 +38,6 @@ DOTA2 刺到人，哪怕是隐形单位，会有突出特效
 
 #### MANA DRAIN
 
-
+不能作用于哈斯卡
 
 #### FINGER OF DEATH
