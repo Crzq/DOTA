@@ -29,3 +29,7 @@ dota2 框打断 tp?
 `发芽` 有视野。
 
 <img src="./img/打野位置.png" alt="先知打野位置" style="zoom: 50%;" align="left" />
+
+
+
+没视野可以看见先知大
